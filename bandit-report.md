@@ -11,3 +11,9 @@ LEVEL 1
 
 Password what a looking fir is : 263JGJPfgU6LtdEvgfWU1XP5yac29mFx
 
+
+----------------------------------------------------------------------
+
+LEVEL 2
+
+Password what a looking fir is :MNk8KNH3Usiio41PRUEoDFPqfxLPlSmx
