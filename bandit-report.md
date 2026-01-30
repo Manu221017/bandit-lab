@@ -27,3 +27,8 @@ Password what a looking fir is :2WmrDFRmJIq3IPxneAaMGhap0pFhF3NJ
 LEVEL 4 
 
 Password what a looking fir is :4oQYVPkxZOOEOO5pTW81FB8j8lxXGUQw
+----------------------------------------------------------------------
+
+LEVEL 5 
+
+Password what a looking fir is :HWasnPhtq9AVKe0dmk45nxy20cvUa6EG
